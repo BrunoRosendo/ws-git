@@ -6,10 +6,8 @@ André Pereira, o nosso host preferido
 
 O André Moreira e a sua Pera foram muito bem vindos
 
+Abaixo Andre Moreira, gajo mais fixe do ni 
 
-dsfg
+![Andre Moreira](https://avatars.githubusercontent.com/u/23351316?v=4)
 
-dfg
-dfg
-d
-fgdfg
+
